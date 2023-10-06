@@ -1,2 +1,0 @@
-# khalyavkad
-Study
